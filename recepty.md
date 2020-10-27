@@ -1,24 +1,35 @@
-ï»¿# GIT kuchaÅ™ka kurzu DA testovÃ¡nÃ­
+# GIT kuchaøka kurzu DA testování
 
-## TatarÃ¡k z olomouckÃ½ch tvarÅ¯Å¾kÅ¯
+## Tatarák z olomouckıch tvarùkù
 
 ### Suroviny
 
-* 200 g olomouckÃ½ch tvarÅ¯Å¾kÅ¯
-* 1 vÄ›tÅ¡Ã­ cibule
-* 100 g mÃ¡sla
-* 1 lÅ¾iÄka hoÅ™Äice
-* 1 strouÅ¾ek Äesneku
-* 1 lÅ¾iÄka sladkÃ© papriky
-* 1 lÅ¾iÄka chilli (nemusÃ­ bÃ½t)
-* 2 syrovÃ© Å¾loutky
+* 200 g olomouckıch tvarùkù
+* 1 vìtší cibule
+* 100 g másla
+* 1 lièka hoøèice
+* 1 strouek èesneku
+* 1 lièka sladké papriky
+* 1 lièka chilli (nemusí bıt)
+* 2 syrové loutky
 
-### Postup pÅ™Ã­pravy
-1. MÃ¡slo utÅ™eme s nastrouhanÃ½mi tvarÅ¯Å¾ky do pÄ›ny.
-2. PÅ™idÃ¡me nadrobno nakrÃ¡jenou cibuli, papriku, hoÅ™Äici, Äili a natÅ™enÃ½ Äesnek a Å¾loutky.
-3. VÅ¡e promÃ­chÃ¡me a podÃ¡vÃ¡me na opeÄenÃ©m, oÄesnekovanÃ©m chlebu s dobÅ™e vychlazenÃ½m pivem.
+### Postup pøípravy
+1. Máslo utøeme s nastrouhanımi tvarùky do pìny.
+2. Pøidáme nadrobno nakrájenou cibuli, papriku, hoøèici, èili a natøenı èesnek a loutky.
+3. Vše promícháme a podáváme na opeèeném, oèesnekovaném chlebu s dobøe vychlazenım pivem.
 
-PÅ™eji dobrou chuÅ¥. Konzumaci nedoporuÄuji pÅ™ed dÅ¯leÅ¾itou schÅ¯zkou, pokud tedy nenÃ­ online :-)  
-_Autor: Jan PÅ™ibyslavskÃ½_
+Pøeji dobrou chu. Konzumaci nedoporuèuji pøed dùleitou schùzkou, pokud tedy není online :-)  
+_Autor: Jan Pøibyslavskı_
 
 Recept na palacinky
+
+1 spetka soli
+200g hladke mouky
+2 vejce
+400ml mleka
+
+ 1. Hladkou mouku rozmixujeme se špetkou soli, mlékem a dvìma vejci tak, aby vznikla správná hustá smìs vhodná pro palaèinky (ani øídká, ani moc hustá).
+
+2. Na pánev s rozpálenım olejem vlijeme pøiblinì jednu malou nabìraèku smìsi. Palaèinku smaíme z obou dvou stran dozlatova.
+
+3. Na hotové palaèinky naneseme libovolné mnoství èehokoliv, co nám chutná. Vhodné jsou marmelády, tvaroh, pudink nebo masová èi zeleninová náplò.
