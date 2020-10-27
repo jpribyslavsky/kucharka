@@ -21,3 +21,4 @@
 Přeji dobrou chuť. Konzumaci nedoporučuji před důležitou schůzkou, pokud tedy není online :-)  
 _Autor: Jan Přibyslavský_
 
+Recept na palacinky
