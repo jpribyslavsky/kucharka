@@ -61,7 +61,7 @@ _Autorka: Jana Zíková (+ její milovaná Kuchařka pro dceru)_
 * meruňky či jiné ovoce
 
 ### Postup přípravy
-Do mísy dejte oba tvarohy, přidejte vajce a mléko a dobře rozmíchejte. Poté přidejte moučkový i vanilkový cukr, rozpuštěné máslo, dětskou krupičku a balíček vanilkového pudinku (ten nevařte, zkrátka jen nasypejte prášek). Dortovou formu (cca 24 cm) dobře vymažte máslem a vysypejte krupičkou. Poté nalijte tvarohové těsto a na závěr nahoru vyskládejte ovoce. Pečte v horkovzdušné troubě předehřáté na 150°C přibližně půl hodiny, a poté ještě dalších cca 15 minut na 180°C, dokud nebude povrch zlatavý.
-_Autorka: Nikol K.
+Do mísy dejte oba tvarohy, přidejte vajce a mléko a dobře rozmíchejte. Poté přidejte moučkový i vanilkový cukr, rozpuštěné máslo, dětskou krupičku a balíček vanilkového pudinku (ten nevařte, zkrátka jen nasypejte prášek). Dortovou formu (cca 24 cm) dobře vymažte máslem a vysypejte krupičkou. Poté nalijte tvarohové těsto a na závěr nahoru vyskládejte ovoce. Pečte v horkovzdušné troubě předehřáté na 150°C přibližně půl hodiny, a poté ještě dalších cca 15 minut na 180°C, dokud nebude povrch zlatavý.  
+_Autorka: Nikol K._
 
 ---
