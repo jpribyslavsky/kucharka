@@ -228,7 +228,7 @@ _Autor: Marie Lucká_
 5. Zalijeme smetanou a poté ještě zakysanou smetanou.
 6. Nakonec posypeme eidamem a dáme cca na 15 minut zapéct.
 
-Nechte si chutnat:-)! K
+Nechte si chutnat:-)!
  
 _Autor: Elena Vrbová_
 
