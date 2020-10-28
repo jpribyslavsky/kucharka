@@ -205,4 +205,32 @@ Dobrou chuť :-)
 _Autor: Marie Lucká_
 
 ---
+## Noky s kuřecím masem
+
+### Suroviny
+
+* kuřecí maso
+* vlašské ořechy
+* koření (sůl, pepř, chilli...)
+* olivový olej
+* noky
+* niva
+* eidam
+* smetana na vaření
+* zakysaná smetana
+
+### Postup přípravy
+
+1. Kuřecí maso nakrájíme na kousky a naložíme s vlašskými ořechy a kořením.
+2. Vše osmahneme na olivovém  oleji.
+3. Mezitím uvaříme noky a scedíme hned, jak vyplavou na povrch, aby nebyly rozbředlé.
+4. V zapékací míse smícháme noky s masem a přidáme nivu.
+5. Zalijeme smetanou a poté ještě zakysanou smetanou.
+6. Nakonec posypeme eidamem a dáme cca na 15 minut zapéct.
+
+Nechte si chutnat:-)! K
+ 
+_Autor: Elena Vrbová_
+
+---
 
