@@ -6,7 +6,7 @@
 150 g povoleného másla
 200 g cukru moučka
 200 g mletých ořechů
-200 g dětských piškotů (rozmixovat) – mohou být i polámané kousky cukroví
+200 g dětských piškotů (rozmixovat)
 2 lžíce vody
 1 lžíce Tuzemáku
 
